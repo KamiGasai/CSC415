@@ -1,1 +1,2 @@
-All the class material and ppt are copyrigth by Prof. Hao Yue
+
+All the class materials and ppts are copyrigth by Prof. Hao Yue
